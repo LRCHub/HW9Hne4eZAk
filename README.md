@@ -1,0 +1,81 @@
+# LGYankees – L.S.L II
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+【HIRO】
+人生と共に乗り継いできた俺の生き様 調和してきた
+BigリムにPhat car ready go bounceで
+highwayかっ飛ばす
+風を切るように紙が舞う 次のgetでまた懸かる
+Next Target流線形yes!!
+それかゴツイのゲトってuh baby
+値段とかじゃなくてどのシーンで誰とノルのか?
+それが肝心
+You know say?これが俺のスタイル
+Business Rap Star抜け目ない
+このまま行くぜphat rolling!!
+のろのろ走るなら置いてくぜ
+ぞろぞろと登場phat crazy
+超厳選されたマシーンとベンベン
+【hook】
+全国right upここ!!ここ!!
+LGYankeesから仕掛ける高まる鼓動は○△□
+NO DOUBT baby all night wrong!!
+全国right upここ!!ここ!!
+LGYankeesから仕掛ける高まる鼓動は○△□
+NO DOUBT baby all night job job job!!
+【RYO】
+1～2 2～3 4 bounce!!
+回り動き走り出す
+月明かり照らす放つ模様
+sexyなbody lineまさに極上
+伝わり続ける叫ベアツい振動
+高鳴る気持ち揺れる鼓動
+流れ出す景色 香り薫る様々な季節感じる肌で!!
+あいたwindowから聞こえる
+sound 3.2.1 Let's go!!
+横目に映る立ち並ぶ街並み
+走る愛車に見とれるそこのLady
+乗っていきなside seatに!!
+照らす足元LED ESCORT
+Sunroof見上げる星空に
+今夜限りの俺のmy honey.
+【hook】
+全国right upここ!!ここ!!
+LGYankeesから仕掛ける高まる鼓動は○△□
+NO DOUBT baby all night wrong!!
+全国right upここ!!ここ!!
+LGYankeesから仕掛ける高まる鼓動は○△□
+NO DOUBT baby all night job job job!!
+【RYO】
+きらびやかに光る
+鮮やかに彩る
+走りすぎる愛車の数々
+ひときわ目立った俺とのスライド
+そろそろ俺に乗っていきな!!
+NO DOUBT babyついてきな!!
+いい夢見せる分かるかな?
+それはNO DOUBT俺ら間違いはねぇ
+【HIRO】
+常にフル稼働さmoney count machineが
+縦列に並んだphatな環境
+積み上げて来たのさ集結し
+今日も全力明日も全力結局連日連動
+「Say～!!」って反応くれ!!
+その声量が何よりの栄養
+【hook】
+全国right upここ!!ここ!!
+LGYankeesから仕掛ける高まる鼓動は○△□
+NO DOUBT baby all night wrong!!
+全国right upここ!!ここ!!
+LGYankeesから仕掛ける高まる鼓動は○△□
+NO DOUBT baby all night job job job!!
+【hook】
+全国right upここ!!ここ!!
+LGYankeesから仕掛ける高まる鼓動は○△□
+NO DOUBT baby all night wrong!!
+全国right upここ!!ここ!!
+LGYankeesから仕掛ける高まる鼓動は○△□
+NO DOUBT baby all night job job job!!
+```
