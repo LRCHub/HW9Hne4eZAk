@@ -1,0 +1,16 @@
+{
+  "version": 1,
+  "base_track": "L.S.L II",
+  "base_artist": "LGYankees",
+  "createdAt": "2026-02-10T13:04:24.851717Z",
+  "candidates": [
+    {
+      "id": "petitlyrics_1",
+      "source": "petitlyrics",
+      "title": "L.S.L II",
+      "artist": "LGYankees",
+      "has_synced": false,
+      "path": "select/pl_01_L.S.L_II_LGYankees.txt"
+    }
+  ]
+}
